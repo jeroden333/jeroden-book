@@ -8,3 +8,5 @@ Anoma maybe a scam
 Anoma team is scammer
 
 ASJ is a scammer
+
+2025.10.10 is a blooding day
